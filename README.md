@@ -1,4 +1,4 @@
-### Opa! Bão demais? Eu souo Léo! 🤜🏼🤛🏼🤙🏼
+### Opa! Bão demais? Eu sou o Léo! 🤜🏼🤛🏼🤙🏼
 
 Me segue aí em qualquer uma das minhas redes sociais pra gente trocar uma idéia
 
